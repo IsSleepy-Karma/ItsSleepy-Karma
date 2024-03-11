@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ItsSleepy-Karma
 - 👀 I’m interested in: games, anime, books and cotton candy
 - 🌱 I’m currently learning: PWD
-- 💞️ I’m looking to collaborate on: nothing
-- 📫 How to reach me: you dont
+- 💞️ I’m looking to collaborate on: nothing...
+- 📫 How to reach me: you dont...
 - 😄 Pronouns: she/her or any i dont care much
 - ⚡ Fun fact: i fell asleep on a moving bike
 
